@@ -84,9 +84,9 @@ I approach analytics as a **business problem first**, and a technical problem se
 
 ## 🤝 Connect With Me
 
-- 💼 LinkedIn: [Add your LinkedIn](https://www.linkedin.com/in/your-profile)
+- 💼 LinkedIn: [Add your LinkedIn](https://www.linkedin.com/in/arbabhusain?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 🌐 Portfolio: [Add your Website](https://yourwebsite.com)
-- 📧 Email: [yourname@email.com](mailto:yourname@email.com)
+- 📧 Email: [arbabhusain5@gmail.com](mailto:Arbabhusain5@gmail.com)
 
 ---
 
